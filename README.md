@@ -9,4 +9,5 @@
 ![ore3](https://github.com/user-attachments/assets/a67b82fc-9bcb-4aeb-a644-0beccf194447)
 ![ore4](https://github.com/user-attachments/assets/877d7dc0-6e20-4d7e-99e2-561928b83f9e)
 ![ore5](https://github.com/user-attachments/assets/05a0ac4a-d2b5-44f6-b936-8fa6be2c6933)
+![ore6](https://github.com/user-attachments/assets/da4ae750-0a52-436c-8d6d-48fce9b40a5a)
 
