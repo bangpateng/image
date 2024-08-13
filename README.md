@@ -11,6 +11,7 @@
 ![ore5](https://github.com/user-attachments/assets/05a0ac4a-d2b5-44f6-b936-8fa6be2c6933)
 ![ore6](https://github.com/user-attachments/assets/da4ae750-0a52-436c-8d6d-48fce9b40a5a)
 
+![pwr](https://github.com/user-attachments/assets/0d88bcdc-ca13-4f9c-b324-54e900530731)
 
 ![pwr](https://github.com/user-attachments/assets/7ddef584-b133-491b-9f95-33e68dddf5db)
 
