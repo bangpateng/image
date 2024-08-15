@@ -15,3 +15,6 @@
 
 ![pwr](https://github.com/user-attachments/assets/7ddef584-b133-491b-9f95-33e68dddf5db)
 
+![laconic (1)](https://github.com/user-attachments/assets/29da6649-f235-47e4-a136-fd0410a57e8d)
+
+
